@@ -1,3 +1,3 @@
 # References
-
-* octocat 1 😈
+## John Jacob Jingleheimer Schmidt
+***CEO of Business Parnters Inc.
